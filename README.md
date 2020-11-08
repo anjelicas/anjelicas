@@ -1,5 +1,11 @@
 ### Hi there 👋
-
+![Me!](https://static.wixstatic.com/media/d8edf0_b693beb1599147aa9792259a58341af2~mv2.gif)
+Name: Anjelica Solomon 🇵🇭✨  
+Pronouns: She/Her/Hers 👩🏻  
+School: Rutgers University - School of Communications & Informations, Douglass Residential College 🏫  
+Grade: Sophomore, Class of 2023 2️⃣3️⃣🎓 
+Major: Information Technology & Informatics 💻  
+Minors: Business Administration 💼, Critical Intelligence Studies 🔐 & Asian Studies 🌏  
 <!--
 **anjelicas/anjelicas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
