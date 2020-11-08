@@ -6,6 +6,7 @@ School: Rutgers University - School of Communications & Informations, Douglass R
 Grade: Sophomore, Class of 2023 2️⃣3️⃣🎓  
 Major: Information Technology & Informatics 💻    
 Minors: Business Administration 💼, Critical Intelligence Studies 🔐 & Asian Studies 🌏  
+Interests: Product Management 💡, Cybersecurity 🚨 & Design 🎨
 <!--
 **anjelicas/anjelicas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
