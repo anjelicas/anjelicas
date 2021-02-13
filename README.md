@@ -1,5 +1,5 @@
 ### Hi there 👋
-![Me!](https://static.wixstatic.com/media/d8edf0_b693beb1599147aa9792259a58341af2~mv2.gif)
+![Me!](https://static.wixstatic.com/media/d8edf0_c6640ccf3dbc4f85ae5d829eb5cb0cf8~mv2.gif)
 Name: Anjelica Solomon 🇵🇭✨  
 Pronouns: She/Her/Hers 👩🏻  
 School: Rutgers University - School of Communications & Informations, Douglass Residential College 🏫  
