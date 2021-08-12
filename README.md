@@ -3,7 +3,7 @@
 Name: Anjelica Solomon 🇵🇭✨  
 Pronouns: She/Her/Hers 👩🏻  
 School: Rutgers University - School of Communications & Informations, Douglass Residential College 🏫  
-Grade: Sophomore, Class of 2023 2️⃣3️⃣🎓  
+Grade: Junior, Class of 2023 2️⃣3️⃣🎓  
 Major: Information Technology & Informatics 💻    
 Minors: Business Administration 💼 & Asian Studies 🌏  
 Interests: Product Management 💡, Cybersecurity 🚨 & Design 🎨
