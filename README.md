@@ -5,7 +5,7 @@ Pronouns: She/Her/Hers 👩🏻
 School: Rutgers University - School of Communications & Informations, Douglass Residential College 🏫  
 Grade: Junior, Class of 2023 2️⃣3️⃣🎓  
 Major: Information Technology & Informatics 💻    
-Minors: Business Administration 💼 & Asian Studies 🌏  
+Minors: Business Administration 💼 & HRM ❤️
 Interests: Product Management 💡, Cybersecurity 🚨 & Design 🎨
 Hobbies: Anime 🎞, Kpop 🇰🇷, (a little) Gaming 👾 & Journaling 📝
 <!--
